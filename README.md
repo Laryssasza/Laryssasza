@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming, reading and programming
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on some big techs...
-- 📫 How to reach me @laryysasza on IG and my linkedin:
+- 📫 How to reach me @laryssasza on IG and my linkedin:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: currently studying the 3rd period of Computer Science at UEPB
 
